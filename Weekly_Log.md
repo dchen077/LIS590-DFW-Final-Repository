@@ -29,5 +29,5 @@
 - Went over previous cataloged materials to answer questions recorded in activity log and fixed corresponding issues. 
 - Introduced to how to establish authority files for personal names.
 
-### Week 5 -- 4/28
+### Week 5 -- 4/28, 29, 5/2
 - I was out for a conference and did not meet with my DFW advisor. 
