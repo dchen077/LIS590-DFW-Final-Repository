@@ -27,4 +27,7 @@
 ### Week 4 -- 4/21,22,25
 - Continued practicing original, copy, and enhance cataloging based on records available in OCLC Connexion. 
 - Went over previous cataloged materials to answer questions recorded in activity log and fixed corresponding issues. 
-- Introduced to how to establish authority files for personal names. 
+- Introduced to how to establish authority files for personal names.
+
+### Week 5 -- 4/28
+- I was out for a conference and did not meet with my DFW advisor. 
