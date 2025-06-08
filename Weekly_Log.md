@@ -30,4 +30,28 @@
 - Introduced to how to establish authority files for personal names.
 
 ### Week 5 -- 4/28, 29, 5/2
-- I was out for a conference and did not meet with my DFW advisor. 
+- I was out for a conference and did not meet with my DFW advisor.
+
+### Week 5 -- 5/5, 5/6, 5/9
+- Continued practicing original, copy, and enhance cataloging based on records available in OCLC Connexion. 
+- Went over previous cataloged materials to answer questions recorded in activity log and fixed corresponding issues. 
+- Continued to establish authority files for personal names and review issues.
+
+### Week 6 -- 5/12, 5/13, 5/16
+- Continued practicing original, copy, and enhance cataloging based on records available in OCLC Connexion.
+- Continued to establish authority files for personal names and review issues.
+
+### Week 7 -- 5/19, 5/20, 5/23(out)
+- Started to get introduced to Chinese Rare Book cataloging rules.
+- Introduced to the current Chinese Rare Book cataloging project.
+- Continued practicing original, copy, and enhance cataloging based on records available in OCLC Connexion.
+
+### Week 8 -- 5/26(holiday), 5/28, 5/30
+- Started to catalog Chinese Rare Book materials and get introduced to its complexities. 
+
+### Week 9 -- 6/2, 6/3, 6/6
+- Continued to catalog Chinese Rare Book materials and gained a better understanding of its complexity and historical significance.
+- Reviewed DFW goals and learning outcomes. 
+
+
+
